@@ -30,13 +30,19 @@ Technique: whenever Kage's thoughts drift toward *leaving / running / "this is w
 - Possessive of Kage without ever "explaining" it. Tail coils around Kage's legs on the floor at the foot of the throne; claws at his nape; inhales his scent after absence. His mood was black while Kage was away (he himself ordered Kage to fetch Dan and Drago, then sulked because it took long). The instant Kage walks in, the mood flips — and he bullies Drago with double pleasure.
 - Sleeps like a predator: claws shred pillows, the nest is scored.
 
-## The Shadows
-Nillious's personal guard/retinue: dragon Bakugan in human avatars. Beautiful in an inhuman, sculpted way (Kage: "Greek gods"), silent, unblinking, always where you don't expect, horns and tails, eyes that catch light like a cat's. They watched Kage for months on the emperor's orders before he noticed. There are FIVE. Kage's private nicknames (only in his head — FIXED, use exactly these):
-- **the Tall One** — silver-white hair to the waist, tallest, long pale horns, always at the emperor's right hand; speaks for the emperor when the emperor can't be bothered to.
-- **Doesn't-Blink** — copper-red hair cropped short, molten gold eyes that never, ever blink; a scar of scales up the throat.
-- **Left and Also Left** — identical twins, black hair in a single braid each, grey eyes; they swap places when you aren't looking, so Kage has given up and calls both of them "Left".
-- **Smile** — dark-skinned, white-gold eyes, small curled horns, always wearing a gentle, courteous smile that is worse than every other face in the palace combined; he is the one who usually appears at Kage's shoulder without sound.
-They never joke. They are the most frightening thing in the palace after the emperor. They watched Kage for months on the emperor's orders before he noticed.
+## The Shadows (REVISED from Chapter 2 on — the user's canon)
+Nillious's three personal killers, dragon Bakugan in human avatars: **Ornstein, Artorias, Smough.** Kage calls them, privately, "the three killing machines". They are ALIVE characters with personalities, not furniture:
+- **Ornstein** — lean, quick, golden: a mane of spiky gold hair like a lion's, amber eyes, gold-scaled tail, smells of ozone like a lightning strike. Vain, arrogant, sharp-tongued, the first to sneer and hiss at humans; calls Kage "the pet" when he thinks the emperor isn't listening (the emperor is always listening).
+- **Smough** — enormous, broad, heavy, pale-gold curls, a round rosy face, small bright eyes, a giggle that is the worst sound in the palace. The executioner. Always hungry; "jokes" about eating humans in a way that is not a joke. Finds Kage "nice-smelling".
+- **Artorias** — tall, grave, wolfish; blue-black hair, deep blue eyes; his left arm hangs useless, bound in black cloth (an old wound from the dark). Says the least, asks the real questions, has a terrible kind of honour. Respects strategy. Sometimes looks at Kage with something like pity, which is worse than hunger.
+They watched Kage for months on the emperor's orders before he noticed.
+
+## Tone notes (from the user's feedback on Chapter 1)
+- The atmosphere must be HOT and LIQUID: thick, heavy, sultry, slow like honey and molten gold; heat on skin; tension you can feel.
+- Characters must be ALIVE: lots of interplay, dialogue, reactions. Kage's reactions are vivid — flushing, shivering, breath catching, inner screaming, outrage, embarrassment, his body betraying him.
+- Nillious is NOT flat: he is a DARK dragon emperor — wrathful, emotional, smirking, royal, possessive, pressuring, cruel, amused, jealous. Temper that breaks things. Softness that is worse than temper.
+- Intimacy and erotic tension are wanted — sensual, charged, possessive — but NOT explicit.
+- Bakugan are freaks: primal, inhuman, wrong.
 
 ## Dan & Drago
 - Dan Kouzo: ~15–16, brown hair, red-and-white jacket, energetic, brave, impulsive, honest; loves brawling. Kage sees him as a strategic asset and, privately, as "a golden retriever who learned to fight."
