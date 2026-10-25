@@ -200,3 +200,46 @@ Each is **introduced once by its owner**. Later sections may call back in a line
 | `e7b46577-image.jpg` / `1a7e1702-image.jpg` | Moonlit carved balcony gallery, lanterns on the rail, lattice shadows |
 | `1b6e314e-image.jpg` | Kage's chambers — teal and gold, canopy bed, arches onto a night city |
 | `eb2aa6ee-image.jpg` | The lantern-lit city in the depths — towering walls, great gate, crowds, beasts |
+
+---
+
+## 11. Established in Chapter One (canon for later chapters)
+
+**Kage**
+- Searched for Dan and Drago for three weeks and two days and found them behind a laundromat back home. He has lived in the palace for **73 nights**, and the moon over the balcony gallery has been full on every one of them.
+- He counts everything: lanterns, steps, Nillious's "General"s. He paced the fire station at 41 × 26 of his steps.
+- He has no warmth of his own. His card (black edged with gold) is "the only thing I own that is warm by itself," carried against his ribs.
+- Private habits:
+  - He drinks energy drinks warm and pins chip bags shut with a clothespin.
+  - The palace has no sockets, so he keeps twelve power banks and charges them weekly at a Reykjavík hot dog stand whose owner thinks he's a student.
+  - His candy hoard is in a cedar chest built for ceremonial robes.
+  - He is playing the visual novel *Rain over Kestrel Academy*: a girl in a yellow raincoat on a bridge; he chose *[Say nothing.]*.
+- He stops exactly twelve paces from Artorias at every audience. Most evenings Nillious receives him in small form, coiled on a cushion beneath the empty throne.
+- He privately calls Nillious "emperor of a fire station" (Drago's jab).
+- His one Amphoreus image so far: "the same dawn came up over the same white stairs every morning, and the same gods died on schedule."
+- He let Dan take the bad line over the lava crust. Dan's anger "will come later, with the arithmetic." It hasn't arrived yet.
+
+**Drago**
+- He served in the original Gilded Maw. He said *no* to Nillious in the original Twin Crown Hall, in front of the court and his own legions, then lost the duel. Ornstein says it was "not long."
+- His legions went to a general Nillious claims to have forgotten the name of. **Keep that general unnamed** until a later chapter decides otherwise.
+- His tell is the tip of his tail. In the aftermath he bared his throat to Dan and apologized. He has said "No" to ruling the Clans with Nillious, and will say it "as often as you ask."
+
+**Nillious**
+- He calls Kage "my Leader" and calls Dan "it" and "mayfly."
+- His throne-room tail tip rests on the **fifth of nine steps**. His shadow has two heads.
+- **True form:** the left head is smooth and smirking (it calls Kage "warm tool"); the right head is rougher, laughing, and was the "half-beat" voice (it calls Kage "mayfly"). The two heads never blink or breathe together. They moved as one for the first time when Kage touched Strength.
+- He split the right-hand gilded armrest across the snout. One carved tooth fell down all nine steps and lies against Artorias's boot.
+- He had Drago's scorch **burned back into the copied pillar** — a trophy. "I keep everything I win."
+- He promised Drago "a shelf" between "a jawbone I won't describe and a very fine bowl."
+
+**Places**
+- **Corridor frieze:** six wars (hives split, a boiling sea, burning herds, falling birds, brutes in chains). The last panel shows a two-headed dragon over six planets — "a table laid for one."
+- **The lounge:**
+  - A roster of gold plates, eight rows, with gaps in rows four and six. Names read aloud: Sólveig Arnardóttir, Marcus Bell, Hana Mori, Diego Ferrer, Tobias Lund, Priya Okafor, Jonah Reyes, "Ines—".
+  - Food is always laid out before anyone arrives, and Kage has never seen who sets it.
+- **The gym:** a boy of about sixteen with a gray-green dragon's hand on his nape, and a heat-shimmer around him. There is a noise below the gym Kage "decided to believe was plumbing."
+- **The sealed door to the depths:** gold-strapped, with no handle and no card slot, and it breathes. Kage has tried his card on it.
+- **The depths, seen from his balcony:** round towers full of lit windows, a great gate, an avenue of light, crowds, and beasts that "look like elephants" (he's almost sure they aren't).
+- **The arena:** it unfolds from the throne room. The runner becomes a magma river, the pillars become obsidian spires, and the dais rises on a column with the Shadows at its foot.
+
+**Open threads seeded:** the two missing roster plates; the breathing outside Kage's door (Kage never heard it walk away); the noise below the gym; the always-full moon; Nillious's long look at Kage; Dan and Drago now members of the Dragon Clan, quartered in the guest wing.
